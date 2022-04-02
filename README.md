@@ -1,1 +1,1 @@
-# https://dima-10.github.io/jns-laboratory/
+# https://Dima-10.github.io/jns-laboratory/
